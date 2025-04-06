@@ -1,1 +1,1 @@
-Random text without the context or little more than usual
+Random text without the context
